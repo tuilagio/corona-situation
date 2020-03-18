@@ -47,10 +47,9 @@ Chăm sóc bản thân và những người xung quanh. Cám ơn các bạn.
 ###############
 
 ## Angela Merkel: "Es ist ernst. Nehmen Sie es auch ernst.
-Süddeutsche Zeitung
-11-14 minutes
+[Süddeutsche Zeitung](https://www.sueddeutsche.de/politik/angela-merkel-rede-coronavirus-wortlaut-1.4850582)
 
-*Die Bundeskanzlerin fordert die Menschen in Deutschland auf, solidarisch zu sein - und sich dringend an die vorübergehenden*Einschränkungen zu halten.
+*Die Bundeskanzlerin fordert die Menschen in Deutschland auf, solidarisch zu sein - und sich dringend an die vorübergehenden Einschränkungen zu halten.*
 
 Liebe Mitbürgerinnen, liebe Mitbürger,
 
